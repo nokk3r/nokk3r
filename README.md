@@ -1,1 +1,1 @@
-![amogus](/src/мегаплох.gif)
+![amogus](/src/mega.gif)
